@@ -1,1 +1,1 @@
-# rasizm
+nigger nigger nigger
